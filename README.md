@@ -1,0 +1,1 @@
+# yafool.github.io
